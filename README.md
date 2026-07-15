@@ -1,0 +1,1 @@
+# CC_Tech_placement_traning
